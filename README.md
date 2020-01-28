@@ -1,0 +1,1 @@
+# BSIT404_InfoMgmnt_MidTerm1
